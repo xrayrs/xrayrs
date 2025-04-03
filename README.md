@@ -2,11 +2,11 @@
 
 ###
 
-<h3 align="left">⛧About Me</h3>
+<h3 align="left">About Me</h3>
 
 ###
 
-<p align="left">Owner of The Soon Upcoming SatanForums<br><br>⛧ Working On SatanForums<br><br>⛧ I’m looking to collaborate on Projects<br><br>⛧ Contact Me On Telegram OR Session</p>
+<p align="left"><br><br>⛧ Working On SatanForums<br><br> I’m looking to collaborate on Projects<br><br>⛧ Contact Me On Telegram OR Session</p>
 
 ###
 
