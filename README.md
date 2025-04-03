@@ -6,7 +6,7 @@
 
 ###
 
-<p align="left"><br><br>⛧ Working On SatanForums<br><br> I’m looking to collaborate on Projects<br><br>⛧ Contact Me On Telegram OR Session</p>
+<p align="left"><br><br> Working On Multiple Projects<br><br> I’m looking to collaborate on Projects<br><br> Contact Me On Telegram OR Session</p>
 
 ###
 
